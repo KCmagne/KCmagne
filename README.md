@@ -1,4 +1,4 @@
-# 👋 Hi there! I'm [KCmagne]  
+# 👋 Hi there! I'm KCmagne! 
 
 ## 🚀 About Me  
 - 🏗️ Engineer working in the construction industry at Kross Tee Construction Inc.  
